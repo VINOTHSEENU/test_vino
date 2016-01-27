@@ -1,2 +1,9 @@
 # test_vino
-its my account
+..:its my
+WELCOME TO SATYAM CINEMAS
+v
+t
+s
+r
+q
+
